@@ -1,4 +1,4 @@
-# -Revenue-Insights-in-Hospitality-Industry
+# Revenue-Insights-in-Hospitality-Industry
 
 𝗪𝗵𝗮𝘁 𝗜'𝘃𝗲 𝗟𝗲𝗮𝗿𝗻𝗲𝗱: This journey has allowed me to delve into the unique challenges of the hospitality industry and employ my data analytics skills to address real-world problems.
 
